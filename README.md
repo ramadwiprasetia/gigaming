@@ -1,1 +1,2 @@
-Mohon maaf pak saya mengerjakan apa yang saya bisa 
+Rama Dwiprasetia
+ramadwip40@gmail.com
